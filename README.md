@@ -1,5 +1,5 @@
 # 💫 About Me:
-Tech and finance lover ♥️<br>Curious woman looking for new exciting aventures 🚀<br>• Web Dev 👩🏼‍💻<br>• Financial Engineering 📈<br>• IA 🤖<br>• Woman in digital 💪🏼<br>• Math 🧮
+Tech and finance lover ♥️<br>Curious woman looking for new exciting adventures 🚀<br>• Web Dev 👩🏼‍💻<br>• Financial Engineering 📈<br>• IA 🤖<br>• Woman in digital 💪🏼<br>• Math 🧮
 
 
 ## 🌐 Socials:
